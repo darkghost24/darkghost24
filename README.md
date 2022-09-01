@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @darkghost24 My Name is Chanchal Kaity and i ame for westbangal.
+- 👋 Hi, I’m @darkghost24 My Name is Chanchal Kaity and i am form west bangal.
 - 👀 I’m interested in coding, gaming, developing new game and software.
 - 🌱 I’m currently learning in college (Computer Science and Technology inBishnupur Public Institute of Engineering)
 - 📫 How to reach me ... My email - kaitysandhya12@gmail.com
