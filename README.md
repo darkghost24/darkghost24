@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @darkghost24 My Name is Chanchal Kaity and i am Bishnupur.
+- 👋 Hi, I’m Dark Ghoat.
 - 👀 I’m interested in coding, gaming, developing new game and software.
 - 🌱 I’m student of Computer Science and Technology 
 - 📫 How to reach me ... My email - kaitychanchal@gmail.com 
